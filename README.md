@@ -1,1 +1,1 @@
-### Some nerd on a quest to reach out to the truth
+### Some nerd on a quest to reach out to the truth.
